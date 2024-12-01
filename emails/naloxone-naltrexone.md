@@ -6,6 +6,6 @@ I have seen good results from using naloxone for 3 or 4 days; naltrexone has sim
 
 Estrogen can cause ovarian cysts to develop, and can contribute to the development of skin tags and moles. Its effects on the urethra might help with incontinence, but it can cause problems with the bladder muscle, and cystitis.
 
-**[LDN treatment]**
+## LDN treatment
 I think it's safe to take 5 or 10 mg of naltrexone daily for a few days, but I don't think it should be used continuously; I have known people who had good results, repeating the short courses two or three times in a year.
 

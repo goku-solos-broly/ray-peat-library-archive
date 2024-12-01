@@ -4,8 +4,8 @@ I got interested in it in 1965, after reading about Stanley Jacob's ideas, and e
 
 Small amounts are probably harmless; even large amounts seem harmless for some people. Its ability to release histamine and nitric oxide and to inhibit cholinesterase (articles below) suggest that its use shouldn't be prolonged.
 
-**[Safety]**
+## Safety
 In low concentrations DMSO is usually safe, but since I have seen allergy-like reactions to it, and since the biological chemisty is complex (e.g., J Phys Chem A. 2006 Jun 22;110(24):7628-36. Theoretical study of the reduction mechanism of sulfoxides by thiols. Balta B, Monard G, Ruiz-López MF, Antoine M, Gand A, Boschi-Muller S, Branlant G.), I think it's good to use it cautiously and watchfully.
 
-**[Joint pain]**
+## Joint pain
 Thanks for the information; about 40 years ago I was interested in DMSO, but I lost interest in it when I saw some reactions like that.

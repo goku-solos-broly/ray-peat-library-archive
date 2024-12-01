@@ -16,25 +16,25 @@ Brighter light in the early evening [reducing night-time stress]
 
 Blood sugar falls during the night, causing inflammatory mediators and adrenalin, etc., to increase. Sleeping with a wool cap and stockings can help. Having plenty of sugar just before bedtime, or if you wake during the night, will usually alleviate the night-stress problems.
 
-**[Does red light repair damage done just by U.V. light, or maybe also by X-rays?]**
+## Does red light repair damage done just by U.V. light, or maybe also by X-rays?
 By any irradiation, but it's most effective within the first hour.
 
 The harm from the radiation can be interrupted most effectively right away, before the changes have been amplified and integrated with the system.
 
-**[Blue light reducing oral cancer growth]**
+## Blue light reducing oral cancer growth
 Plain incandescent bulbs have enough of the red spectrum to work. Blue light is slightly toxic, so like ultraviolet is can slow cell division, but its toxicity also causes inflammation. Red light reduces inflammation, but it tends to increase proliferation.
 
-**[Proximity of light]**
+## Proximity of light
 If it's comfortable it isn't harmful, but it's easy to get burned when they are so close. Your body temperature is likely to rise, otherwise I don't know of any problem from prolonged light (but even incandescent light does have some slightly harmful blue light, so you should watch your own reactions to it).
 
-**[Does it matter where the bright light shines on your body to receive beneficial effects?]**
+## Does it matter where the bright light shines on your body to receive beneficial effects?
 Bare skin is best; for effects on the nervous system, shining on head, face, neck and back is good.
 
-**[Does infrared light and red/orange light also increase the need for vitamin A?]**
+## Does infrared light and red/orange light also increase the need for vitamin A?
 Not as far as I know.
 
-**[LCD screens]**
+## LCD screens
 People react differently to different screens. Keeping the room bright, and the screen not too bright, can reduce the eye strain. This person has very detailed information about them: http://www.conradbiologic.com/articles/SubliminalFlickerI.html
 
-**[As I add more and more incandescent lights to see how I feel, is there an approximate number of watts which is prudent to not go over?]**
+## As I add more and more incandescent lights to see how I feel, is there an approximate number of watts which is prudent to not go over?
 The heat is the limiting factor, not the light.

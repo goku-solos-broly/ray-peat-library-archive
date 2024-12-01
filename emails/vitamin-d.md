@@ -8,8 +8,8 @@ During the winter for a couple of months 10,000 units of D should be safe, but i
 
 Usually 2000 IU during the winter will make up for no sunlight. Some people need 5000 IU according to their blood tests, to keep it in the middle of the range.
 
-**[Blood test]**
+## Blood test
 I think 50 ng/ml is a good goal. The point at which it lowers parathyroid hormone would be the right amount.
 
-**[Causes of low vitamin D]**
+## Causes of low vitamin D
 I've seen some quick improvements from serious symptoms with a supplement of it. I think low thyroid could increase the need for it. It takes lots of summer sun direct exposure of a lot of skin to make enough vitamin D.

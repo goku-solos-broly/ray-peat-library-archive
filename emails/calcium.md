@@ -10,5 +10,5 @@ The milk estrogen research isn't good. It also contains thyroid and progesterone
 
 Regarding milk and its tryptophan content, The calcium helps to keep the metabolic rate high, and the other nutrients help to steer tryptophan away from the serotonin path.
 
-**[Is 2000 mg calcium and 1000 mg phosphorus a safe ratio?]**
+## Is 2000 mg calcium and 1000 mg phosphorus a safe ratio?
 Yes, that's safe. Even a 1 to 1 ratio is probably safe, but the ideal hasn't been clearly defined.

@@ -6,10 +6,10 @@ It was labeled d-alphatocopherol, but it was semi-solid, like crystallized honey
 
 Pure vitamin E doesn't have any toxic effects, except when it's enough to irritate the intestine, probably because of viscosity.
 
-**[Do you take vitamin E?]**
+## Do you take vitamin E?
 No, I stopped taking it, partly because of the new manufacturing methods, that were associated for several years with adding soy oil to the product.
 
-**[Do you have a preference between with high alpha or high gamma mixed tocopherols?]**
+## Do you have a preference between with high alpha or high gamma mixed tocopherols?
 In similar milligram amounts, I would prefer gamma.
 
 I think mixed tocopherols are better than just d-alpha, but with d-alpha it's good to choose one that has a high potency per volume. I have noticed that one of Unique's products seems to be mostly other oil. I think polycosanols account for some of the viscosity, so I prefer the thick ones.
@@ -18,7 +18,7 @@ If the potency of a vitamin E product is around 1000 i.u. per milliliter, the am
 
 The lighter consistency is because less soy oil is removed from some cheaper products. They don't have to add oil, they just leave more of it in the product. But non-GMO soy is mostly produced using other herbicides and pesticides, and each pesticide has different affinities for oil or water, so oil soluble pesticides would be the main concern, and those are generally much more volatile than vitamin E, and so if they were present in the crude oil, they would end up mostly in the refined oil, rather than in the vitamin E. The thickest, darkest, vitamin E is likely to be the cleanest.
 
-**[Should one avoid taking vitamin E with a food that naturally contains iron (eg., eggs, chocolate, liver)?]**
+## Should one avoid taking vitamin E with a food that naturally contains iron (eg., eggs, chocolate, liver)?
 Iron in those foods won't interfere.
 
 It can still be very protective against lipid peroxidation and inflammation, but the products have been changing frequently in the last 15 years, so I think it's good to be cautious and use minimal doses. The vitamin E from Sigma in the 1960s and early ‘70s behaved completely differently in relation to coenzyme Q10 and other quinones, than the more recent products.

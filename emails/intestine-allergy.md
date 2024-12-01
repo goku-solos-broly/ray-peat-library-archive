@@ -2,7 +2,7 @@
 
 ## Intestinal permeability
 
-**[Do you think the daily raw carrot is among the most effective things?]**
+### Do you think the daily raw carrot is among the most effective things?
 And thyroid and good complete nutrition.
 
 ## Intestinal bacteria
@@ -19,13 +19,13 @@ Like the dark circles, a chronically plugged nostril is suggestive of an allergy
 
 For people with really sensitive intestines or bad bacteria, starch should be zero.
 
-Starches, preservatives, and antioxidants are likely to irritate,stearic acid isn't likely to be a problem.
+Starches, preservatives, and antioxidants are likely to irritate, stearic acid isn't likely to be a problem.
 
 It takes a few days for the intestine to change its rhythm of peristalsis, and a couple of weeks for the enzymes to adjust to a change of foods. A daily raw carrot helps it to adjust.
 
 Until a few years ago, I would drink a couple of quarts of orange juice from pulp-free frozen concentrate every day, then I started noticing those allergy symptoms, and investigated their production processes. They had recently introduced an enzyme technology to make pulp more water soluble. For years, it had been used to dispose of massive amounts of otherwise waste pulp by putting it into the 'creamy' or 'home style' pulpy juices, but then suddenly the relatively clear so-called pulp-free juice began leaving a residue on glasses, and resisting passage through filter paper, besides causing allergy symptoms. For several decades I have watched as traditionally safe foods have been altered, and have found that many people have developed allergic problems when their favorite foods were changed by new technologies. Since intestinal bacteria affect the allergenicity of foods that are poorly digested, changing the flora can often relieve the symptoms. Raw carrot contains some antibiotics that can be helpful; oil and vinegar can increase the germicidal effects. It's important to use oil and vinegar that aren't allergenic themselves. Hypothyroidism increases the susceptibility to many foods.
 
-Since the fiber **[CARROT]** will delay digestion and reduce absorption of other foods, I think it's best to eat it between meals, usually in the afternoon.
+Since the fiber [CARROT] will delay digestion and reduce absorption of other foods, I think it's best to eat it between meals, usually in the afternoon.
 
 Yes, the plain carrot is good. For people who want more antimicrobial effect, the saturated fats and vinegar are helpful.
 

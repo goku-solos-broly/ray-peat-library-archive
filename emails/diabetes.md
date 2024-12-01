@@ -4,7 +4,7 @@ Diabetics typically have elevated lactate, which shows that glucose doesn't have
 
 The T3 component of the thyroid hormone makes muscles and other tissues oxidize sugar. Calcium, sodium, and aspirin are other things that increase the ability to use glucose.
 
-**[Adrenaline surge from thyroid supplementation]**
+## Adrenaline surge from thyroid supplementation
 Free fatty acids are usually high in diabetes, and interfere with glucose use. Aspirin and niacinamide help to lower stress increased fatty acids, so allow exercised muscles to use more glucose. 2 or 3 mcg of cynomel with some food should help to avoid the adrenaline. Vitamins D and K, and salt and calcium, are other things that improve glucose use. Since the liver needs glucose and glycogen to convert T4 into T3, diabetes usually interferes with the conversion. A blood test could show if the ratio of T4 to T3 is very high.
 
 ## Diabetes Type 1 / Beta Cell Regeneration

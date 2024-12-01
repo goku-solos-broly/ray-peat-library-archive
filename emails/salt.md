@@ -6,11 +6,11 @@ That standard isn't very strict, but the salt is probably safe, if it's white. I
 
 Some sea salt is refined, by sequential evaporation, until it's very pure; either kind of pure white salt without additives is good.
 
-**[PARACHUTING SALT?]**
+## PARACHUTING SALT?
 The salt might be causing problems used that way.
 
-**[ALTERNATIVE SODIUM SOURCE]**
+## ALTERNATIVE SODIUM SOURCE
 Baking soda in water is helpful for some people.
 
-**[UPPER LIMIT]**
+## UPPER LIMIT
 Too much salt can injure the stomach. Appetite is usually a good guide to the amount needed.

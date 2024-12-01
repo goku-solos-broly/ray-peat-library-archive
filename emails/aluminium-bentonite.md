@@ -1,6 +1,6 @@
 # Aluminium / Betonite
 
-**[One of our WAPF researchers looked into the aluminum issue associated with bentonite and found that this form of aluminum is not bioavailable?that the issue is in "unbound" aluminum such as in cookware, drinking water, and antacids (see her comments below). We have also heard many healing stories associated with the intake of Pascalite clay (http://www.pascalite.com), a calcium bentonite. Do you have reason to believe that this should be avoided?]**
+## One of our WAPF researchers looked into the aluminum issue associated with bentonite and found that this form of aluminum is not bioavailable?that the issue is in "unbound" aluminum such as in cookware, drinking water, and antacids (see her comments below). We have also heard many healing stories associated with the intake of Pascalite clay (http://www.pascalite.com), a calcium bentonite. Do you have reason to believe that this should be avoided?
 
 "Medical" bentonite does often have other
 (toxic) stuff in it, but that wasn't my point. Its silica content is

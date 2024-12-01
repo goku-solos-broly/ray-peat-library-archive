@@ -12,25 +12,23 @@ ZINC isn't directly an oxidant, but when it's used as a chemical supplement it c
 
 ANTIBIOTICS can be used topically, but the tetracycline type is usually taken internally, for their antiinflammatory effect. Changing the diet while using an antibiotic can make the effect permanent. 
 
-**[Can FLOWERS OF SULFUR taken internally help with acne? Would minocycline also help?]**
-Either of them can help, but with prolonged use the intestine can develop sensitivity to the sulfur. causing irritation instead of stopping it.
+## Can FLOWERS OF SULFUR taken internally help with acne? Would minocycline also help?
+Either of them can help, but with prolonged use the intestine can develop sensitivity to the sulfur, causing irritation instead of stopping it.
 
-**[Why do many women get rid of acne using CONTRACEPTIVES (estrogen)?]**
-Estrogen causes the oil glands to atrophy, so the skin doesn't support bacterial growth so well. Topicalsulfur's germicidal effect can help, and topical aspirin and caffeine are antiseptic as well as antiinflammatory. One function of vitamin A is to increase progesterone in the skin, and it has to be inbalance with thyroid to do that. Another function is to differentiate the skin cells, reducing keratinplugging of the glands.
+## Why do many women get rid of acne using CONTRACEPTIVES (estrogen)?
+Estrogen causes the oil glands to atrophy, so the skin doesn't support bacterial growth so well. Topical sulfur's germicidal effect can help, and topical aspirin and caffeine are antiseptic as well as antiinflammatory. One function of vitamin A is to increase progesterone in the skin, and it has to be inbalance with thyroid to do that. Another function is to differentiate the skin cells, reducing keratin plugging of the glands.
 
-**[Best topical form of tetracycline for acne?]**
+## Best topical form of tetracycline for acne?
 I think the easiest thing would be an over-the-counter neomycin lotion.
 
-**[BENZOL PEROXIDE]**
+## BENZOL PEROXIDE
 I suspect that it will age the skin. Have you tried topical sulfur and oral tetracycline? 
 
-**[follow up: Tetracycline safe when pregnant?]**
+## Tetracycline safe when pregnant?
 Antibiotics generally shouldn't be used during pregnancy. Sulfur (precipitated or sublimed) can be mixed into a slurry with water and patted onto the area. Dissolved aspirin used with it increases the antiseptic effect and reduces inflammation.
 
-**[follow up: Is BRIMSTONE POWDER safe?]**
+## Is BRIMSTONE POWDER safe?
 The people who wrote the label should be removed to fresh air immediately, their brains aren't getting enough oxygen. There are forms of sulfur that are ground, rather than precipitated, and they aren't as effective, but they aren't harmful. If it has a very strong smell, it might be contaminated; the smell should be mildly unpleasant. Ground sulfur/brimstone is commonly used in animal feed, so it isn't toxic. 
 
-**[Does the precipitated sulfur smell like a match also?]**
+## Does the precipitated sulfur smell like a match also?
 Yes, the smell varies slightly. When there's a skin fungal infection, there's a hydrogen sulfide stink, which is what kills the fungus.
-
-

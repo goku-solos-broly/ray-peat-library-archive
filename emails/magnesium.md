@@ -10,11 +10,11 @@ Cooked green leaves, or the water they were boiled in, is a very good source of 
 
 All of the magnesium supplements that I have tried caused allergy symptoms and bowel inflammation, but some people don't have a problem with magnesium carbonate or magnesium glycinate. I think it's best to use the foods with high magnesium content, and to start the thyroid slowly, allowing the tissues time to absorb magnesium; the other minerals, Ca, Na, and K, have antistress effects that spare magnesium. 
 
-**[Magnesium oxide]**
+## Magnesium oxide
 I don't recommend the oxide, because it's very poorly absorbed, but the carbonate is well absorbed. I don't recommend chemical supplements of magnesium, though, because they all contain some manufacturing impurities that can cause bowel inflammation, such as hemorrhoids. Well cooked greens are very good sources, coffee and chocolate are, too.
 
-**[Magnesium malate]**
+## Magnesium malate
 I haven't seen it sold for a long time, but I think it's o.k.; it's good to watch for allergy reactions such as a headache.
 
-**[RDA for magnesium, 420 mg for an adult]**
+## RDA for magnesium, 420 mg for an adult
 With the average diet, that amount is enough. Good thyroid function, and plenty of calcium, potassium, and sodium can decrease the amount of magnesium needed.

@@ -16,24 +16,24 @@ I normally use pasteurized (and homogenized) milk, and I know people who do best
 
 For a while, the vitamin A is very important, and the PUFA isn't crucial in the short term, so 2 or 3 eggs would be o.k., though in the longer run it's good to eat liver about twice a month, limiting the daily eggs to one or two. The type of cheese doesn't matter much as far as calcium goes. If you don't get much sunlight, and during the winter, a vitamin D supplement is necessary to use the calcium effectively. Plain white rice, well cooked, with butter is o.k. The calcium, vitamin D and vitamin A will greatly improve your immunity,the colostrum wouldn't be necessary.
 
-**[POTATOES]**
+They [conjugated linoleic acid (CLA) and Butyric acid] aren't necessary, but the CLA in cream and butter are probably responsible for some of their good effects. I use 1% milk, some butter and hydrogenated coconut oil, to keep polyunsaturated fats to a minimum.
+
+## POTATOES
 The carotene in sweet potatoes can make them harder to digest. Well cooked white potatoes, such as russets, are very nutritious, and the (cooked) juice is just something for people with extreme metabolic or digestive problems. The juicer I had was the kind that's commonly used for juicing carrots, and it was inexpensive. I don't think it was anything near 700 watts, that's nearly a horsepower, more than enough for a big cement mixer.
 
-**[NON-MAGICAL MUSHROOMS]**
+## NON-MAGICAL MUSHROOMS
 Since reading about the chemicals in mushrooms I stopped eating them, but using them occasionally is o.k., probably better than many vegetables.
 
-**[THYROID FROM FOOD]**
+## THYROID FROM FOOD
 Yes, people used to get very significant amounts from fish heads, chicken necks, various stews and sausages. I knew Norwegians who lived in fishing villages and ate fish head soup every week who said all their relatives were healthy into their 90s.
 
-**[POTATOES VS BANANAS: Potatoes can feed bacteria in the gut resulting in endotoxin and serotonin production; bananas contain serotonin -- yet which of the two is the lesser evil?]**
+## POTATOES VS BANANAS: Potatoes can feed bacteria in the gut resulting in endotoxin and serotonin production; bananas contain serotonin -- yet which of the two is the lesser evil?
 Potatoes are much better, unless you're allergic to them (it usually goes with allergy to tomato and bell peppers).
 
-They **[conjugated linoleic acid (CLA) and Butyric acid]** aren't necessary, but the CLA in cream and butter are probably responsible for some of their good effects. I use 1% milk, some butter and hydrogenated coconut oil, to keep polyunsaturated fats to a minimum.
-
-**[Salt cravings]**
+## Salt cravings
 There are some very salty cheeses that help to satisfy salt appetite, for example pecorino or feta; sometimes I add salt to cheeses such as gouda, emmental, mozzarella, or cheddar. Sometimes pork rinds, chicharrones, are good for a salty snack; I usually heat them in coconut oil and then drain them, to remove some of the pork fat. Orange juice, guavas, watermelons, cherimoyas, cooked apples, cherries, and ripe papayas are good sources of sugar to have regularly.
 
-**[Low testosterone, high cholesterol]**
+## Low testosterone, high cholesterol
 The problem with chicken is that the fat is highly unsaturated, and the meat provides very little calcium. Milk and cheese have a much better ratio of calcium to phosphate. Having the carrots raw (shredded, with a little olive oil, vinegar, and salt) would help with the hormone balance, and protect the intestine against inflammation. Supplementing pregnenolone wouldn't have the risk of the DHEA being converted to estrogen, which tends to happen when thyroid function is low. A small supplement of Armour thyroid or the equivalent could quickly lower the cholesterol, and since cholesterol is converted by thyroid into pregnenolone and DHEA, that would probably help the testosterone. Some shellfish (oysters, shrimp, squid, etc.) or low fat fish would provide trace minerals that might be lacking in your diet. Several eggs per week, or liver once a week, can help with other nutrients that are probably deficient in your present foods. Well cooked potatoes, with butter or cream, fruit, and well cooked greens are other foods have vitamins and minerals that are helpful.
 
 ## Meal Frequency
@@ -48,9 +48,9 @@ Yes, as the metabolism gets more effective, you don't have to eat as often as wh
 ## Fiber
 Cellulose is the safe fiber, and (boiled) bamboo shoots are another safe fiber. My May newsletter, below, has some information about the effects of other fibers, including pectin. If the fruits don't cause digestive problems, such as gas, then the fiber is good. Apples and pears are often so fibrous (because of incomplete ripening) that the fiber can be harmful.
 
-**[About Fiber]** They aren't necessary, for example milk supports abundant bacterial growth that creates bulk, but when there are digestive and hormonal problems because of bad intestinal flora, the fibers of carrot and bamboo shoots have a disinfecting action. The carrots must be raw for that effect. 
+They [FIBERS] aren't necessary, for example milk supports abundant bacterial growth that creates bulk, but when there are digestive and hormonal problems because of bad intestinal flora, the fibers of carrot and bamboo shoots have a disinfecting action. The carrots must be raw for that effect. 
 
-**[Fiber-free diet possible?]**
+## Fiber-free diet possible?
 I've had a fiber-free diet for many years.
 
 ## Macronutrients (carbs, proteins, fats) and their ratios
@@ -71,33 +71,33 @@ If your temperature increases quickly after eating, that's good. I often eat a k
 
 The fats in meat and cheese can be minimized by choosing low fat types, and skimmed or 1% milk can be used.
 
-**[How much starchy food is safe?]**
+## How much starchy food is safe?
 There isn't enough information to judge, but a fair part of the carbohydrate should be in the form of sucrose, fructose, and/or lactose. If it's well cooked, and eaten with butter, it's probably safe for many people.
 
-**[How much sugar?]**
+## How much sugar?
 Appetite should be the basic guide. When your liver has enough glycogen stored, sweet things aren't appetizing.
 
 Although we can make our own fats from sugars, I think it's good to have some fat in our food, because of its effects on the intestine especially. Experiments on an isolated loop of intestine, measuring the nutrients entering the bloodstream, showed that relatively simplified mixtures of nutrients were poorly digested. Fat, protein, sugars, and minerals, in combination, activated the intestine, increasing the digestion of all of them, when they were present at the same time. If the fats are mostly saturated, as in butter, coconut oil, or beef or lamb fat, roughly a third of the calories is good, but the ideal proportion probably depends on the specific foods and the person's level of activity. Increasing either fat or sugar can have some specific therapeutic effects, but when more information becomes available about the composition of particular fruits, I suspect that the ideal balance of nutrients will lean toward the sugars, supported by ketoacids and short-chain saturated fats. The polyunsaturated fatty acids, which break down into toxic fragments and free radicals and prostaglandin-like chemicals, are--along with bacterial toxins produced in the intestine--the source of the main inflammatory and degenerative problems. Sugar and the minerals in fruits are fairly effective in keeping free fatty acids from being released from our tissues, and the fats we synthesize from them are saturated, and aren't likely to be stored as excess fat, because they don't suppress metabolism (as polyunsaturated fats and some amino acids do). The minerals of fruits and milk contribute to metabolic activation, and prevention of free-radical damage.
 
-**[AMOUNT OF FAT EATEN PER MEAL TO ACTIVATE THE RANDLE CYCLE, EVEN IF IT'S SATURATED]**
+## AMOUNT OF FAT EATEN PER MEAL TO ACTIVATE THE RANDLE CYCLE, EVEN IF IT'S SATURATED
 It's mostly from large fat meals, at first, but then it is increased by stress, and builds up over time. 
 
-**[NAUSEOUS AFTER HIGH FAT MEALS]**
+## NAUSEOUS AFTER HIGH FAT MEALS
 Diabetes tends to interfere with the activity of thyroid hormone, and low thyroid function is closely connected to gall bladder problems. It's important to have some carbohydrate with protein foods, to prevent decreased blood sugar symptoms.
 
-**[GRAVITATING TOWARD HIGHER FAT RATIO]**
+## GRAVITATING TOWARD HIGHER FAT RATIO
 Increased metabolic rate could increase fat appetite.
 
-**[HIGH FAT VS HIGH CARB]**
+## HIGH FAT VS HIGH CARB
 Because of the harmful effect of PUFA, I think it's good to keep all fat intake somewhat low, because even butter and coconut oil contain about 2% PUFA. Fruits and vegetables have sugar in a good balance with the minerals needed to metabolize it.
 
-**[40 Grams of fat a day enough?]**
+## 40 Grams of fat a day enough?
 I think that's enough, having a little with the other foods is best.
 
-**[Do you think someone eating 5000cals and 8g pufa is equivalent to someone eating 2500cals and 4g pufa; both being weight stable]**
+## Do you think someone eating 5000cals and 8g pufa is equivalent to someone eating 2500cals and 4g pufa; both being weight stable
 I think so.
 
-**[Minerals and Vitamins]**
+## Minerals and Vitamins
 I think it's good to choose foods with a high ratio of calcium to phosphorous. Supplementing calcium (and often vitamin D is needed too) is usually necessary with the typical modern diet.
 
 ## Ray Peat's Diet
@@ -114,5 +114,5 @@ Eggs and orange juice, milk and oysters, and a raw carrot. For variety, smoked o
 
 Normally, I usually have around 400 grams of carbohydrate. I have about 3 quarts of milk, varying amounts of orange juice (probably over a quart on average), eggs, and about 200 grams of meat or fish, with other things such as coca cola, cheese, ice cream, cheese cakes, some coconut oil and butter, occasional tropical fruits.
 
-**[GLYCINE SOURCE]**
-I occasionally use some powdered gelatin for things like making marshmallows, but usually I get my gelatin from soup, such as ox-tails. lamb shanks, or chicken backs and wings."
+## GLYCINE SOURCE
+I occasionally use some powdered gelatin for things like making marshmallows, but usually I get my gelatin from soup, such as ox-tails, lamb shanks, or chicken backs and wings.

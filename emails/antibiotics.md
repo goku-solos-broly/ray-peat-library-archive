@@ -8,5 +8,5 @@ For myself, I judge by symptoms; if I feel an effect from a first dose, I take a
 
 Since most people get some vitamin K from intestinal bacteria, it's important to eat liver or to take a K supplement if you use antibiotics for a long time. After a first big dose or two, you should be able to sense when you have enough in your tissues; it has a noticeable smell or sensation while exhaling. I have found that 3 doses of 100mg per day for a few days is usually enough, after one or two bigger doses.
 
-**[Raw garlic as an antibiotic]**
+## Raw garlic as an antibiotic
 It's about as hard on the stomach as on the germs.

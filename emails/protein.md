@@ -12,8 +12,8 @@ Food proteins stimulate insulin secretion, and to prevent hypoglycemia cortisol 
 
 I think it just takes a few hours, or a day, to normalize the tryptophan. Vitamin B6 helps to guide the metabolism of tryptophan away from excessive serotonin.
 
-**[Does a protein deficiency lower liver detoxification due to increased muscle breakdown which inhibits thyroid via amino acids which lowers metabolic efficiency of liver?]**
+## Does a protein deficiency lower liver detoxification due to increased muscle breakdown which inhibits thyroid via amino acids which lowers metabolic efficiency of liver?
 Yes, I think that's at least part of how it works.
 
-**[Why do you recommend to have carbohydrates with a protein meal?]**
+## Why do you recommend to have carbohydrates with a protein meal?
 It mitigates the damage produced by the stress response to hypoglycemia.

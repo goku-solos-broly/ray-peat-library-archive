@@ -18,17 +18,17 @@ When a woman or a cow eats an allergen, such as peanuts or soybeans, the allerge
 
 Goat milk contains more copper than cow milk, and copper is important for energy metabolism and blood formation.
 
-**[RAW OR PASTEURIZED MILK]**
+## RAW OR PASTEURIZED MILK
 The difference isn't enough to worry about. 
 
-**[HOMOGENIZED MILK]**
+## HOMOGENIZED MILK
 It's o.k. 
 
-**[ESTROGEN IN MILK]**
+## ESTROGEN IN MILK
 High estrogen, relative to progesterone, interferes with lactation, and the enzymes that convert estradiol to the less active estrone and estriol are increased by progesterone. The amount of estradiol in milk is usually much less than one microgram per liter, and it's concentrated in the cream, so low-fat milk has very little estrogen. The cow's diet is probably a more important factor in the estrogen content of milk than pregnancy. The information in that abstract isn't enough to tell whether the study was done properly.
 
-**[Powdered milk]**
+## Powdered milk
 It's not as good as fresh milk, or cheese, but when they aren't available, 100 grams (or more) would be a good addition to the diet, because of the high ratio of calcium to phosphate, as well as other nutrients.
 
-**[Lactase milk, brand contains less than 1% of Lactase enzyme]**
-I think the lactase milk is safe."
+## Lactase milk, brand contains less than 1% of Lactase enzyme
+I think the lactase milk is safe.
